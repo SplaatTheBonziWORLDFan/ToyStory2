@@ -1,2 +1,2 @@
-# AbbyHatcherS01E01
-Video Player https://uflix.cc/sPlayer?serieid=abby-hatcher-2018&amp;episodeid=S01E01&amp;stream=stream1
+# Toy Story 2 (1999)
+Video Player - https://uflix.cc/mPlayer?movieid=toy-story-2-1999&stream=stream1 and https://uflix.cc/movie/toy-story-2-1999
